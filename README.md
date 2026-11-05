@@ -1,0 +1,2 @@
+# Miestnost-bez-casu
+Karty
